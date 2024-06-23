@@ -5,7 +5,7 @@
 - 👀 I’m interested in Data Analytics, as i recently obtained a certification in google project management.
 - 🌱 I’m currently learning fundamental skills on Data Analytcis and looking forward to exploring opportunities using data.
 - 💞️ I’m looking forward to collaborate on data related projects on a beginner friendly projects with individuals who are willing to mentor me, while I journey through this part.
-- 📫 How to reach me [Linkedln](www.linkedin.com/in/helen-eze-7a6159109)
+- 📫 How to reach me [Linkedln](https://www.linkedin.com/in/helen-eze-7a6159109/)
 - 😄 Pronouns: her/she
 - ⚡ Fun fact: Football lover
 - 
